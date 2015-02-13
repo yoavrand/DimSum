@@ -1,3 +1,3 @@
 # DimSum
 Let's eat
-Eat me
+תאכל אותי גבר
